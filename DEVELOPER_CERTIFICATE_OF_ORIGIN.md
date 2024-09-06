@@ -7,7 +7,7 @@ Suite D4700
 San Francisco, CA, 94129
 
 Everyone is permitted to copy and distribute verbatim copies of this
-license document, but changing it is not allowed.
+license document, but changing it is not allowed by anyone public this is very important personal given AKIN2022/AKJUS/ma.( vajratechnosolutions CEO Mr.AK(master in GitHub supporting backend) handover by software rules only Authority person.
 
 
 Developer's Certificate of Origin 1.1
